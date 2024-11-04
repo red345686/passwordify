@@ -123,3 +123,7 @@ youtube link -- https://www.youtube.com/watch?v=jqT8qndMzAg
 
 outdated apk-- https://expo.dev/accounts/harshit345686/projects/your-app-name/builds/76b171e5-1ee4-47e0-8c5f-cf719c61bd97   (it is not latest)
 
+
+
+
+for screenshots ---- https://drive.google.com/drive/folders/1BbeIvkveen7nxLH1cJXngZmBtP-v-Hbt?usp=sharing
